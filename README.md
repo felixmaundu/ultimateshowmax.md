@@ -1,7 +1,7 @@
-# ultimateshowmax.md
-for  ultimateshowmax privacy
+ultimateshowmax.md
+For  ultimateshowmax privacy
 PRIVACY NOTICE
 
-last updated feb 17 2021
+last updated Feb 18 2021  At 18:30 Hrs
 
 thankyou for choosing Ultimate showmax app. we are committed to providing you with latest movies and incorporation with traillers.For further more abouts check and ask on movieincke@gmail.com
